@@ -1,1 +1,1 @@
-# Vixel
+# Vixel Studios
